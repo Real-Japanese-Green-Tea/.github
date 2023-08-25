@@ -15,8 +15,4 @@ A Little Nudge (Or A Big Push) 🤓
 We get it; coding is hard. But so is waiting for the water to boil just right for that perfect cup of tea. So, if you're looking to flex those coding muscles, get a little street cred in the dev community, and have some fun along the way, you're in the right place. And hey, if you can sneak in a few tea puns in the comments, we won't complain!
 
 For "Reference Only" 📌
-Dive deeper into our world: Real Japanese Green Tea
-Catch our latest brew-torials on YouTube
-Join our tea parties on Facebook
-Tweet us your best tea memes on Twitter
-Check out our tea-rrific snaps on Instagram
+Dive deeper into our world, you can find our site and our major social sites above, please browse them to get more of an idea of our company. Looking forward to working with. Please feel free to use our general chat forum I just started on the right!
